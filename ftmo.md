@@ -1,0 +1,1 @@
+I am 35k funded this month. Rupesh
